@@ -1,1 +1,0 @@
-# Jottly-project
